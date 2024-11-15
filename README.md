@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @zorsen
+- 👀 I’m interested in indie game development 
+- 🌱 I’m currently learning everything I can!
+- 💞️ I’m looking to collaborate on games.
+- 📫 zorsen.bsky.social and zorsen on discord.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love a good sandwich 🥪 
